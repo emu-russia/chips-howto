@@ -55,3 +55,7 @@ TBD: Принцип физико-химического воздействия.
 Нужно, чтобы пары HF не залетели в лёгкие.
 
 Обычно дома не ставят вытяжные шкафы, поэтому проще всего проводить занятия с HF на свежем воздухе, в строительной маске.
+
+## Видосики
+
+<a href='http://www.youtube.com/watch?feature=player_embedded&v=ydYfNyOYwAI' target='_blank'><img src='http://img.youtube.com/vi/ydYfNyOYwAI/0.jpg' width='425' height=344 /></a>
